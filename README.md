@@ -5,6 +5,8 @@
 - Relacionais uMC (Racionais MC)
   - Mano #A52A2A (Mano Brown)
 - Gabriel o Debugador (Gabriel o Pensador)
+- Planet Temp (Planet Hemp)
+- DJANGOnautas (Detonoautas)
 
 ## Internacionais
 - ENUMminen (Eminem)
