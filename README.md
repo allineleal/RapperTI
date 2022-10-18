@@ -6,3 +6,4 @@
 - Gabriel o Debugador (Gabriel o Pensador)
 - ENUMminen (Eminem)
 - String Dog (Snoop Dog)
+- GET Malone (Post Malone)
