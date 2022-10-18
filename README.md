@@ -10,3 +10,6 @@
 - ENUMminen (Eminem)
 - String Dog (Snoop Dog)
 - GET Malone (Post Malone)
+- 110010 cent (50 cent)
+- Ice Clock (Ice Cube)
+
