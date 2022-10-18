@@ -1,3 +1,3 @@
 # RapperTI
 
-- Marcelo DDR2
+- Marcelo DDR2 (Marcelo D2)
